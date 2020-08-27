@@ -1,0 +1,1 @@
+Horiseon is an online webpage rescource for companies and buisnesses to be able to establish there presence or services through online webpages. Horiseon also offer services such as search engineer optimization and social media marketing.
